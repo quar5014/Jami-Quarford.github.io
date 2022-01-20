@@ -1,2 +1,2 @@
-# Jami-Quarford.github.io
+# quar5014.github.io
 UNC BACS Class website
